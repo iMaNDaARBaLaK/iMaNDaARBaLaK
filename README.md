@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iMaNDaARBaLaK
+- 👋 Hi, I’m @kurta_pajama
 - 👀 I’m interested in 💰 money 
 - 🌱 I’m currently learning how to teach
 - 💞️ I’m looking to collaborate on Telegram 
